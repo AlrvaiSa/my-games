@@ -1,1 +1,1 @@
-# my-games
+google.com, pub-6276347512230988, DIRECT, f08c47fec0942fa0
